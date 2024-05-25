@@ -1,5 +1,2 @@
 #價格分析
-fdsafds
-gfdsgdfgdf
-gdfgdgdfgfdg
-gfdgdfgdfggdgsdgf
+599美元
